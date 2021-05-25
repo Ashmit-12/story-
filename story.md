@@ -1,1 +1,1 @@
-once upon a time there were two freinds a rabbit and a turtle. the turtle was a wise and a kind hearted animal wheras the rabbit was bluntly proud of himself.
+once upon a time there were two freinds a rabbit and a turtle. the turtle was a wise and a kind hearted animal wheras the rabbit was bluntly proud of himself. one day they fellm into an argument about whowas the wiser one.
